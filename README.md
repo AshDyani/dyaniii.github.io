@@ -1,4 +1,4 @@
 # dyaniii.github.io
 now or never - just... Be. :key::key::key:
 
-#me :bowtie: and my the dev lifestyle :computer:
+#me :bowtie: and the dev lifestyle :computer:
